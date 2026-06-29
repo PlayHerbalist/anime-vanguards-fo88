@@ -1,4 +1,4 @@
-
+automatic hypershot Script is the best hypershot Script, featuring auto-sell and auto-collect. Safe and powerful for all your needs.
 
 
 
